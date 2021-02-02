@@ -1,1 +1,1 @@
-![alt text](https://images-ext-2.discordapp.net/external/RexFvyVn2unULYqKz7JrHH-W-t-F5kQK1mOlmT4ZYSQ/https/media.discordapp.net/attachments/796093969167155271/799709852615704576/Sprite-0001-Recovered.gif?width=474&height=474)
+![alt text](https://cdn.discordapp.com/attachments/756789700995448893/806099582235836457/ezgif.com-crop.gif)
