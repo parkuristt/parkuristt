@@ -1,1 +1,1 @@
-![alt text](https://cdn.discordapp.com/attachments/756789700995448893/806099582235836457/ezgif.com-crop.gif)
+![alt text](https://cdn.discordapp.com/attachments/790802778913112116/827077097045491742/gaming_1_1_2_1.mp4)
