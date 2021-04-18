@@ -1,1 +1,1 @@
-![alt text](https://cdn.discordapp.com/attachments/790802778913112116/827077097045491742/gaming_1_1_2_1.mp4)
+![alt text](https://media.discordapp.net/attachments/833467201314488320/833467337583099914/spin.gif)
