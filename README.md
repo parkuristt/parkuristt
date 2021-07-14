@@ -1,1 +1,1 @@
-![alt text](https://media.discordapp.net/attachments/833467201314488320/833467337583099914/spin.gif)
+[![Parkurist's GitHub stats](https://github-readme-stats.vercel.app/api?username=parkuristt)](https://github.com/anuraghazra/github-readme-stats)
